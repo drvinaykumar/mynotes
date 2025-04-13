@@ -1,0 +1,3 @@
+Shakespeare: "Brevity is the soul of wit." 
+
+

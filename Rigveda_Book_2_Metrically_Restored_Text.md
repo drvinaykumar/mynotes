@@ -1,0 +1,6 @@
+2.023.01a     gaṇā́nāṃ tvā gaṇápatiṃ havāmahe 2.023.01b     kavíṃ kavīnā́m upamáśravastamam 2.023.01c     jyeṣṭharā́jam bráhmaṇām brahmaṇas pata 2.023.01d     ā́ naḥ śr̥ṇvánn ūtíbhiḥ sīda sā́danam
+
+
+42 2.042.01a     kánikradaj janúṣam prabruvāṇá 2.042.01b     íyarti vā́cam aritéva nā́vam 2.042.01c     sumaṅgálaś ca śakune bhávāsi 2.042.01d     mā́ tvā kā́ cid abhibhā́ víśvyā vidat 2.042.02a     mā́ tvā śyená úd vadhīn mā́ suparṇó 2.042.02b     mā́ tvā vidad íṣumān vīró ástā 2.042.02c     pítryām ánu pradíśaṃ kánikradat 2.042.02d     sumaṅgálo bhadravādī́ vadehá 2.042.03a     áva kranda dakṣiṇató gr̥hā́ṇāṃ 2.042.03b     sumaṅgálo bhadravādī́ śakunte 2.042.03c     mā́ na stená īśata mā́gháśaṃso 2.042.03d     br̥hád vadema vidáthe suvī́rāḥ 43 2.043.01a     pradakṣiníd abhí gr̥ṇanti kārávo 2.043.01b     váyo vádanta r̥tuthā́ śakúntayaḥ 2.043.01c     ubhé vā́cau vadati sāmagā́ iva 2.043.01d     gāyatráṃ ca traíṣṭubhaṃ cā́nu rājati 2.043.02a     udgātéva śakune sā́ma gāyasi 2.043.02b     brahmaputrá 'va° sávaneṣu śaṃsasi 2.043.02c     vŕ̥ṣeva vājī́ śíśumatīr apī́tiyā 2.043.02d     sarváto naḥ śakune bhadrám ā́ vada 2.043.02e     viśváto naḥ śakune púṇyam ā́ vada 2.043.03a     āvádaṃs tváṃ śakune bhadrám ā́ vada 2.043.03b     tūṣṇī́m ā́sīnaḥ sumatíṃ cikiddhi naḥ 2.043.03c     yád utpátan vádasi karkarír yathā 2.043.03d     br̥hád vadema vidáthe suvī́rāḥ
+
+
